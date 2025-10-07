@@ -1,0 +1,2 @@
+# Biblical-Framework-for-Distinguishing-Institutional-Fidelity-from-Personal-Regeneration
+Biblical framework distinguishing faithful, erring, and apostate churches based on gospel fidelity. Corporate vs. individual accountability, diagnostic tools for church evaluation, pastoral guidance for separation from false teaching. Defends justification by faith alone with exegetical rigor. Soli Deo Gloria.
